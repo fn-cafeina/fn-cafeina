@@ -1,1 +1,1 @@
-I like computers :)
+With enough effort, dreams come true. Keep building.
