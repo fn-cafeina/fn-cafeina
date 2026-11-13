@@ -1,1 +1,1 @@
-Ok computer
+I like computers
